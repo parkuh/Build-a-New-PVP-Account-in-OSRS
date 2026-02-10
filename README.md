@@ -1,15 +1,24 @@
 Build a Starter PvP Account
+
 Make a Duplicate of the Document to Check off each box!
 
 Items I traded Main:
 10m GP
+
 Various Teleport Tabs: 50 House, 10 Varrock, 10 Lumbridge, 10 Falador, 10 Camelot
+
 10 of Each Jewelry: Dueling ring, Glory, Combat Bracelet, Skills Necklace
+
 1k of Each Elemental Rune
+
 Each Set of DHide Chaps
+
 Darts/Knives to Train Ranged - Check Prices
+
 50 Staminas
+
 5k Cannonballs & Dwarf Multi Cannon - not necessary, but good starting levels. Can go to Giant’s Pit in Shayzien
+
 Additional Items will be needed for Quests below (Quest Helper will be your bestfriend!)
 
 Quest List: 
