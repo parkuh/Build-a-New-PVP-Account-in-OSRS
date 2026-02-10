@@ -15,15 +15,21 @@ Additional Items will be needed for Quests below (Quest Helper will be your best
 Quest List: 
 NOTE: GET 43 PRAYER FIRST IT WILL MAKE ALL THESE QUESTS MUCH EASIER
 From 61M link to his video: https://www.youtube.com/watch?v=_oy1s5Ha9Gk
+
 Witch’s potion
 - Eye of Newt, Burnt Meat, Onion
+
 The Restless Ghost
+
 Imp Catcher
 - All 4 Beads
+
 Witch’s House
 - Leather Gloves, Cheese
+
 Doric’s Quest
 - 6 clay, 4 copper ore, 2 iron ores
+
 Knight’s Sword - (OPTIONAL BUT YOU WILL NEED 20 SMITHING FOR NEXT QUEST)
 - 2-4 Iron Bars, Redberry pie, 1-3 blurite ores
 Tourist Trap
